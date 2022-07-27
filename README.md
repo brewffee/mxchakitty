@@ -1,3 +1,7 @@
+<div align="center">
+  <img src="https://cdn.discordapp.com/attachments/945746216292085770/1001949509288460340/unknown.png" />
+</div>
+
 # meoowowowowowoowowowwowowowowowowowo
 i think ill be coding more lol 
 
